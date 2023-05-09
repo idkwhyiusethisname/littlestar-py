@@ -6,3 +6,6 @@ some beautiful python ui
 
 
 ## MAKE BY MEG OR VAST NO SKID PLZZZZ
+
+contact : ! Mag#1337 
+id : 1069007486151037051
